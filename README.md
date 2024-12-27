@@ -1,8 +1,8 @@
 Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is guyssar or guychannel1
 ==============================================================================================================================================
 
-* ✉️  You can contact me at [kw39060@kw.ac.th](mailto:kw39060@kw.ac.th)
-* 🚀  I'm currently working on [KW-Japan-2565](http://www.kw-japan2565.online)
+* ✉️  You can contact me at [Discord](https://discord.gg/Qf32jyTjpk)
+* 🚀  I'm currently working on [cake-bf.com](https://cake-bf.com/))
 * ⚡  Artist
 
 ### Skills
